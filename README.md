@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yuvnine
-- 👀 I’m interested in MCYT, ANIME AND MANGA
-- 🌱 I’m currently learning on how to make btc
+- 👀 I’m interested in Muisc, ICT, etc...
+- 🌱 I’m currently learning on how to love life more
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  
 
